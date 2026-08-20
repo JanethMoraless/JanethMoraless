@@ -1,3 +1,3 @@
 ### Hi there! 👋🏻
 
-I'm Janeth Lúe, a educator (Mathematics Specialist) and Principal of C.E. Mizata.
+I am Janeth Lue, an educator (Mathematics specialist) and the principal of C.E. Mizata.
